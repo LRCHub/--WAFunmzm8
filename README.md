@@ -1,0 +1,50 @@
+# 倉木麻衣 – Secret of my heart
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+どんな　言葉に変えて
+君に　伝えられるだろう
+あれからいくつもの季節が
+通り過ぎたけれど
+いつも　傍で笑ってる
+私にも言えないことが
+まだ　ひとつだけある
+Secret of my heart
+疑ってもないね
+いつだって少しの未来があれば
+真実は　手に入れられるはず
+I can't say もう少しだけ
+I'm waiting for a chance
+こんな　穏やかな時間
+もっと　繋っていたい
+全てを見せるのが　怖くて
+少し離れて步く
+君の横顔がなぜか
+壊れそうで　守りたい
+もっと近づきたいよ
+Secret of my heart
+理解ってくれるよね
+誰だって　逃げたい時もあるけど
+それだけじゃ　何も始まらない
+I can't say きっと必ず
+I'm calling for a chance
+Can I tell the truth?
+その言葉言えず　空回りする唇に
+Feeling in my heart 隠せない
+これ以上 'Cause I love you
+I　will be with you
+Wherever you are
+Can you feel my heart?...
+Can't you see, you're my dream
+失いたくないよ
+大切な　君と過ごすこの時間
+あきらめる位なら　信じて
+I just wanna say　もう迷わない
+Can't you　see, you're my heart
+どんな作り物も
+簡単に壊れてしまう　日が来る
+だけどまだ　いつまでも変わらない
+Secret of my heart
+Our future is forever
+```
